@@ -1,0 +1,1 @@
+mi chiamo Morena, ho 19 anni, mi ha sempre appassionato qualsiasi tipo di arte ed ho scelto nta proprio perché non si limita ad un solo ambito, ma ne sviluppa di diversi, che motivano e sviluppano il proprio pensiero.
